@@ -1,13 +1,9 @@
 # Union Wells Repository Soft System
 
-Unionwell hat das Qualitätssicherungssystem ISO9001 und IATF16949 erhalten
-Zertifizierung.
+Gotten comfortable southern China, Huizhou Unionwell has some skill in gathering and amassing diverse simplicity microswitches, modules, and other exactness electronic parts that have been gathered with different brands locally and all throughout the planet. The Unionwell workshop is arranged at the entryway among Shenzhen and Dongguang and is more than 22,000 square meters. Our creative work gathering and experts have significant length of association in great accomplishment. With his reformist creative mind, Unionwell is particularly strong in the affirmation of incredibly capable microswitch game plan, waterproof switches, rotating switches, press button switches and various switches with a hard and fast yearly yield of 300 million pieces. Our quality switches are totally attempted and meet UL, ENEC, EK and CQC research focus affirmation. They're the most great key to turning most electronic instruments, home devices, vehicle equipment, and power gadgets on and off. 
 
-Mit einer starken und nachhaltigen Lieferkette ist Unionwell in der Lage zu liefern
-Kunden kontinuierlich mit 100% Zufriedenheit.
+Cutoff switches are used in a wide collection of conditions and applications because of their harshness, straightforwardness of course of action, and trustworthiness of execution. 
 
-Mit einem effizienten und genauen Schaltertestsystem ist Unionwell immer bereit, Kunden bei ihren personalisierten Testprojekten zu unterstützen, zusätzlich zu einem 100% igen Testprozess für jedes einzelne Schalterstück.
+A rocker switch is an electric on/off change that swings starting with one side then onto the next when crushed, keeping one side raised and another debilitate. 
 
-F & E- und Produktionssystem aus einer Hand für Produktforschung und -entwicklung, Präzisionsformen, Präzisionsspritzguss, Präzisionsprägen, Forschung und Entwicklung für Automatisierungsgeräte, automatisierte Montage von Fertigprodukten und Prüfung.
-
-Mit seiner sukzessiven Kreativität ist Unionwell besonders stark in der Realisierung von hocheffizienten Mikroschalterserien, wasserdichten Schaltern, Drehschaltern, Druckknopfschaltern und anderen Schaltern mit einer jährlichen Gesamtproduktion von 300 Millionen Stück. Unsere Qualitätsschalter sind vollständig getestet und erfüllen die UL-, ENEC-, EK- und CQC-Laborzertifizierung. Sie sind der absolut beste Schlüssel zum Ein- und Ausschalten der meisten elektronischen Instrumente, Haushaltsgeräte, Automobilelektronik und Elektrowerkzeuge.
+A microswitch responds to changes in the environment by opening or closing a movement of progress contacts to hold down a contraption.
